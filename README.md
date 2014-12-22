@@ -37,9 +37,22 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A modest defence of the caueat giuen to the wearers of impoisoned amulets, as preseruatiues from the
+
+1. TO ALL THAT
+loue health, and honour
+Physicke, health of
+Mind and Body.
+
 #####Body#####
-A modest defence of the caueat giuen to the wearers of impoisoned amulets, as preseruatiues from the
+
+1. A
+MODEST DEFENCE
+OF THE CAVEAT GIVEN
+TO THE WEARERS OF
+impoisoued Amulets, as Preseruatiues
+from the
+Plague.
+
 **Types of content**
 
   * There are 14 **verse** lines!
